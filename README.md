@@ -12,4 +12,4 @@ Meu nome é Diogo pereira
 
 @o_pereirakk
 
-![_](https://tenor.com/pt-BR/view/funny-smile-gif-13970301594081285720)
+![_](https://media.tenor.com/weB7SDBJ1lgAAAAM/funny-smile.gif)
